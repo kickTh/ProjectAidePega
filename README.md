@@ -1,1 +1,0 @@
-# PegaSource project Aide Android
